@@ -1,2 +1,1 @@
-This is all my own work. I liked this final, it gave me the creative freedom to make something that was truly unique to me. That you for a wonderful semester!
-Github:https://github.com/Paige200600/final.git
+This is all my own work. I liked this final, it gave me the creative freedom to make something that was truly unique to me. Thank you for a wonderful semester!
